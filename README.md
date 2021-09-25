@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @soumyaprakashprusti
-- 👀 I’m interested in coding, badminton, working out, anime and video games.
+- 👀 I’m interested in coding, badminton, working out, food and thoda bahot gaming.
 - 🌱 I’m currently learning github basics, C++ and python.
 - 💞️ I’m looking to collaborate on nothing, because I'm still learning.
 - 📫 How to reach me ... on Instagram @samprusti
